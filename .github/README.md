@@ -8,7 +8,7 @@
   <img src="http://telegra.ph/file/a4414daec2d994211857f.jpg">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [™°‌ 🫧 SIXTY NINE 𓃭🇨𝐇𝐀𝐓 𝐁𝐎𝐓 ⃟⛦⃕͜༆](https://t.me/FLAME_MAINCHATS)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [™°‌ 🫧 SIXTY NINE 𓃭🇨𝐇𝐀𝐓 𝐁𝐎𝐓 ⃟⛦⃕͜༆](https://t.me/FLAME_MAINCHAT)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 
